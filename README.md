@@ -1,8 +1,12 @@
-# Hai!
+🌸🌸🌸🌸🌸🌸🌸🌸🌸🌸🌸🌸🌸🌸🌸🌸🌸🌸🌸🌸🌸🌸🌸🌸🌸🌸🌸🌸🌸🌸🌸🌸🌸🌸🌸🌸🌸🌸🌸🌸🌸
+# ✨ Hai There! ✨
 
-#### 👩‍💻 I'm a Computer Science student with a passion for all things tech
-#### 💻 I thrive at the intersection of maximalism, troubleshooting, and aesthetics
-#### 💅I strongly believe that science - and specifically computer science - can be both girly-pop and serious.
-#### 🔍 Since diving into the world of Computer Science, I've been loading myself up on bootcamps, internships, and extracurriculars in order to learn and improve myself
-#### 📚 When I'm not working on code, at my full time job, or doing extracurriculars, you'll often find me exploring topics like data hoarding, virtual reality, and hunting for great deals on used items - there's nothing quite like the thrill of finding a steal! 
-#### 🌈 On my time off, I love reading fantasy, anime, video games, watching videos, and hanging out with my loved ones and my pets. 
+#### 👩‍💻 I’m a Computer Science student enchanted by all things tech!
+#### 💻 Living at the sparkly crossroads of maximalism, troubleshooting, and aesthetics.
+#### 💅 Firm believer that Computer Science is not just serious business — it can be girly-pop too!
+#### 🔍 My journey into the tech world has been a whirlwind of bootcamps, internships, and all the fun extracurriculars. I’m always on the move, learning and leveling-up my skills!
+#### 📚 When I'm not diving into code, working my magic at my job, or brightening up extracurriculars, you’ll catch me hoarding data like treasures, dipping into virtual reality, and scoring the best deals on pre-loved gems—because who doesn’t love a great find?
+#### 🌈 In my downtime, I’m all about escaping into fantasy worlds, binge-watching anime, conquering video games, and soaking up fun and educational/techy vids. Also, I love spending time with my senior dogs. 
+🌸🌸🌸🌸🌸🌸🌸🌸🌸🌸🌸🌸🌸🌸🌸🌸🌸🌸🌸🌸🌸🌸🌸🌸🌸🌸🌸🌸🌸🌸🌸🌸🌸🌸🌸🌸🌸🌸🌸🌸🌸
+##### 💖 Let’s make the digital world dazzle 💖
+🌸🌸🌸🌸🌸🌸🌸🌸🌸🌸🌸🌸🌸🌸🌸🌸🌸🌸🌸🌸🌸🌸🌸🌸🌸🌸🌸🌸🌸🌸🌸🌸🌸🌸🌸🌸🌸🌸🌸🌸🌸
