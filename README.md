@@ -3,6 +3,7 @@
 
 # ✨ Hai There! ✨
 </div>
+
 ### 👩‍💻 About Me
 - **Enchanted By Tech**: As a Computer Science student, I'm completely enchanted by all things tech!
 - **At the Crossroads**: I live at the sparkly crossroads of maximalism, troubleshooting, and aesthetics.
