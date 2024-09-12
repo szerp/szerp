@@ -1,33 +1,28 @@
 <div align="center">
   🌸🌸🌸🌸🌸🌸🌸🌸🌸🌸🌸🌸🌸🌸🌸🌸🌸🌸🌸🌸🌸🌸🌸🌸🌸🌸🌸🌸🌸🌸🌸🌸🌸🌸🌸🌸🌸🌸🌸🌸
 
-# ✨ Hai There! ✨
-</div>
-
+# ✨ Welcome! ✨
 <div align="center">
+👩‍💻 About Me
 
-  ### 👩‍💻 About Me
-**Enchanted By Tech**: As a Computer Science student, I'm completely enchanted by all things tech!
+Passionate About Technology: As a Computer Science student, I am deeply fascinated by all aspects of technology and its potential to shape our future.
 
-**At the Crossroads**: I live at the sparkly crossroads of maximalism, troubleshooting, and aesthetics.
+At the Intersection of Tech and Creativity: I thrive at the unique intersection of technical problem-solving, creativity, and aesthetics, blending innovation with design.
 
-**Girly-pop & Tech**: I'm a firm believer that Computer Science can be both serious and girly-pop!
+Embracing My Style: I believe that Computer Science can be both a serious pursuit and a space for personal expression.
+🔍 My Tech Journey
 
+Constantly Evolving: My journey into the tech world has been an exciting blend of bootcamps, internships, and hands-on projects. I’m continuously learning and honing my skills to stay ahead in the field.
+📚 Outside of Coding
 
-  ### 🔍 My Tech Journey
-**Learning and Growing**: My journey into the tech world has been a whirlwind of bootcamps, internships, and exciting extracurriculars. I’m always learning and leveling up my skills!
+Data Enthusiast: When I’m not coding, I’m exploring data, experimenting with virtual reality, and searching for unique, pre-loved treasures.
 
+Games and Entertainment: I enjoy immersing myself in video games, watching anime, and staying informed with educational and tech content.
 
-  ### 📚 When I'm Not Coding
-**Treasure Hunter**: When not diving into code, I'm hoarding data like treasures, exploring virtual reality, and hunting for the best deals on pre-loved gems.
+Caring for Senior Dogs: In my free time, I’m dedicated to caring for my senior dogs, who bring a lot of joy and relaxation to my life.
+💖 Let’s Connect
 
-**Fun and Games**: I love escaping into fantasy worlds, binge-watching anime, conquering video games, and soaking up fun educational/techy videos.
-
-**Loving my Senior Dogs**: My downtime is often spent loving and caring for my senior dogs.
-
-
-  ### 💖 Let’s Connect
-**Make the Digital World Dazzle**: Let’s make the digital world dazzle!
+Creating Impact Together: Let’s collaborate and bring innovative ideas to life, making the digital world more dynamic and exciting.
 
 </div>
 
